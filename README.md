@@ -2,7 +2,7 @@
 
 Halo semua!
 
-Saya Hanim Nafisa, seorang pelajar yang sedang mengejar cita-cita di dunia pendidikan. Saya saat ini bersekolah di SMA Wahid Hasyim kelas 10. Saya sangat bersemangat untuk belajar dan mengembangkan diri di berbagai bidang.
+Saya Hanim Nafisa, seorang pelajar yang sedang mengejar cita-cita di dunia pendidikan. Saya saat ini bersekolah di SMA Wahid Hasyim. Saya sangat bersemangat untuk belajar dan mengembangkan diri di berbagai bidang.
 
 ## Tentang Saya
 Saya senang menghabiskan waktu luang saya untuk mendalami pengetahuan tentang topik tersebut. Saya percaya bahwa pendidikan adalah kunci kesuksesan, dan saya berkomitmen untuk terus belajar dan tumbuh.
