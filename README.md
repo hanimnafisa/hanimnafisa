@@ -8,7 +8,7 @@ Saya Hanim Nafisa, seorang pelajar yang sedang mengejar cita-cita di dunia pendi
 Saya senang menghabiskan waktu luang saya untuk mendalami pengetahuan tentang topik tersebut. Saya percaya bahwa pendidikan adalah kunci kesuksesan, dan saya berkomitmen untuk terus belajar dan tumbuh.
 
 ## Aktivitas Ekstrakurikuler
-Di samping kegiatan akademis, saya juga aktif dalam berbagai kegiatan ekstrakurikuler Design Grafis.
+Di samping kegiatan akademis, saya juga aktif kegiatan ekstrakurikuler Design Grafis.
 
 ## Harapan dan Impian
 Saya bermimpi untuk menjadi milyader, dan saya berusaha keras untuk mencapainya. Saya percaya bahwa dengan kerja keras, tekad, dan dedikasi, segala sesuatu dapat dicapai.
