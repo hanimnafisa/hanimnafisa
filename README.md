@@ -11,7 +11,7 @@ Saya senang menghabiskan waktu luang saya untuk mendalami pengetahuan tentang be
 Di samping kegiatan akademis, saya juga aktif kegiatan ekstrakurikuler Design Grafis.
 
 ## Harapan dan Impian
-Saya bermimpi untuk menjadi milyader, dan saya berusaha keras untuk mencapainya. Saya percaya bahwa dengan kerja keras, tekad, dan dedikasi, segala sesuatu dapat dicapai.
+Saya bermimpi untuk menjadi miliarder, dan saya berusaha keras untuk mencapainya. Saya percaya bahwa dengan kerja keras, tekad, dan dedikasi, segala sesuatu dapat dicapai.
 
 Terima kasih telah meluangkan waktu untuk membaca perkenalan saya. Saya sangat antusias untuk bertemu dengan rekan-rekan sejawat baru, belajar bersama, dan membangun masa depan yang cerah bersama-sama!
 
